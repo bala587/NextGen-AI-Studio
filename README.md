@@ -1,4 +1,4 @@
-# NextGen AI Studio  
+# NextGen AI Studio    
 
 ![final output ](https://i.pinimg.com/originals/88/ea/7b/88ea7be0d41dc1a6cb0ab831bf9bd445.jpg)
 
